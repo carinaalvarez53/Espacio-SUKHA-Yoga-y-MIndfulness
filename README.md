@@ -1,3 +1,4 @@
 # Espacio-SUKHA-Yoga-y-MIndfulness
 
-carina alvarez
+Carina Alvarez
+Profesora de Yoga e Instructora de Mindfulness
